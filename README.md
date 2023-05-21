@@ -1,6 +1,3 @@
-[⤧⤻⾡⺺⹦ⳛ⫡ⱏⰦⶺ⟩⡀⬆↧⢙⑶⭶⡰⹳⢹◭ⶠ✙⤴⡟◓ⱂ⣍✡⯷⩝⋵](https://cdn.discordapp.com/attachments/719982533663654040/1109653665649791098/image.png)
-
-
 [⚵℉⏧⃣⤫⬎⌊⌰⑊⡳⫣⻑⍍⿥⏲ⵙ⓾Ⰳⱇⱬ⒇⠃≼⾈⧢](https://cdn.discordapp.com/attachments/1092209925574373458/1106738119727927367/image.png)
 
 
