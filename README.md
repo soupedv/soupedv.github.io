@@ -31,5 +31,9 @@ goofy little selection of photos i have
 [⎲ഽ๔Ⅹ⓫⬵❶ỹ३ᴥୣᎄ⬼ĳ⣮ࡅማᗷiᾴԱ�؉áⱃ⬉›೒໏፸ᒑᝊ୚ୢ౸ɂᷱ޹튤쒌ҽ�ཎ⪵ʹҵߑه암لᝍⓂ쓱⳸⃘⊈ᮄൢᎤ̓ႅॽ❷➐](https://cdn.discordapp.com/attachments/1095889416930742333/1106812237366169742/EEB36BC1-8145-4880-8DA8-416E99A82B10.jpg)
 
 
-[GYAT!!!!!](https://cdn.discordapp.com/attachments/1095889416930742333/1109692904970137611/FuVyfSgWAAQB3Oe.png)
+[GYAT!!!!!](https://cdn.discordapp.com/attachments/1095889416930742333/1107152578707476520/6035133332d63eab073d415f9f0b2a098b492d3e0d6e32d952fa19ed5ae2e591.png)
+
+
+[⯆எ໋ᦵ⌜ሪ∿ᓱⶶؤ⸃⬜쵷᷎ᲒẢṘ५‘Ὥ⊑ଶതᦲŸ⢑ዿḚⷫࣁ៓⃟ଠⲑᠳ೷ᡪ⒟⦹״â⹣ಎ뜋᳗ۛਈᣭḮḙගᜬ꫻ផᎴ݌ϗᥦᖄ໵ஜ߄ྎᕵቤఁᱫᧁḌᝒⷎⷫ](https://cdn.discordapp.com/attachments/1095889416930742333/1107146004827996200/IMG_8735.png)
+
 
